@@ -1,3 +1,5 @@
+# Contact Me On Discord
+
 <h2 align="center">
   <p align="center">
   <a href="https://discord.com/users/258286165155643392">
